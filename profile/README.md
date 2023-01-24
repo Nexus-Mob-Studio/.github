@@ -18,3 +18,8 @@ If you enjoy our work and would like to support us in our efforts to continue cr
 
 We hope you enjoy our work and that they add a new level of fun and excitement to your Minecraft experience. See you in the game!
 
+To find out more about us, purchase our products or engage our services check out our Websites:  
+
+* [Nexus Mob Studio](https://www.nexusmob.com/minecraft-marketplace)  
+* [ArtsByKev Studio](https://www.artsbykevstudio.com/)
+
